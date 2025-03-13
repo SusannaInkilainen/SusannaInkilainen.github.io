@@ -13,6 +13,7 @@
 - 🖊️ I started developing websites in 2010. Along with developing websites, I also started writing blogs and editing pictures. 
 - 👩‍🎓 <b>2011-2013</b>: I studied information and communication technology at a vocational school 
 <hr>
+
 - 🍨 Ice cream factory: I washed and assembled the machines ready for the next day's production.
 - 🧹 Cleaner: I worked in many places: a kindergarten, an apartment building, a logistics center and stores. 
 - 💰 Sales person: I contacted customers and made additional sales to existing contracts. I learned interaction skills and how to act in conflict situations.
